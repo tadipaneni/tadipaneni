@@ -4,8 +4,6 @@
 
 - 🌟 Current Status: **Actively seeking new adventures where I can sprinkle my magic dust on exciting challenges!**
 
-- 💬 Ask me about **My current role as Graduate Research Assistant**
-
 - 📫 How to reach me **shreyatadipaneni2@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/shreya-tadipaneni-22a4451a6/](https://www.linkedin.com/in/shreya-tadipaneni-22a4451a6/)
